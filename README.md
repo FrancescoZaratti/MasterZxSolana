@@ -1,4 +1,4 @@
-![Logo Epicode banner Github](https://github.com/FrancescoZaratti/MasterZxSolana/assets/153545609/ce52a47b-91f3-4162-a446-8a955beb4c0a)
+![Logo MasterZxSolana banner GitHub](https://github.com/FrancescoZaratti/MasterZxSolana/assets/153545609/1fffb13c-6ada-4082-9c64-1ea99a0ba882)
 
 Hello everyone! 😊 
 
