@@ -1,4 +1,4 @@
-![Logo MasterZxSolana banner GitHub](https://github.com/FrancescoZaratti/MasterZxSolana/assets/153545609/1fffb13c-6ada-4082-9c64-1ea99a0ba882)
+![MasterZ x Solana Bootcamp banner Github](https://github.com/FrancescoZaratti/MasterZxSolana/assets/153545609/a8251c5c-9db0-4b5e-842e-4e0b41e1e6e4)
 
 Hello everyone! 😊 
 
